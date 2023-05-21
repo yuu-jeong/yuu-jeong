@@ -1,4 +1,4 @@
-# Yuu-Jeong 
+# Yu-Jeong 
 
 
 Seoul Women's University ✨  
